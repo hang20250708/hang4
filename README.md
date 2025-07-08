@@ -10,4 +10,4 @@
 
 本站聚集海量高清视频资源，涵盖电影、纪录片与综艺等多样内容，支持跨平台流畅播放。每日更新，确保您第一时间获得最新影视资源。无需注册，轻松点击即可观看，致力于为您提供高品质的观影享受。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/hang20250708/hang4 ）</span>
